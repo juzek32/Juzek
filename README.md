@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @JoeDoesShiz
+- 👋 Hi, I’m Barak Obamna
 - 👀 I’m interested in ur mom
 - 🌱 I’m currently learning Russian
 - 💞️ I’m looking to collaborate on overthrowing the goverment
